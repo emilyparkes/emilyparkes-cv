@@ -1,6 +1,6 @@
 # Emily Coco Parkes
 
-Hello! 👋  
+Hello 👋  
 
 Thank you for taking the time to check out my details.
 
